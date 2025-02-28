@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ChristoTheron
-- 🌱 I’m currently learning all things Crypto
 - 📫 How to reach me christo.r.theron@gmail.com
 
 <!---
